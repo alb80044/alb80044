@@ -1,2 +1,2 @@
 • 👀 oh hiii
-• i'm albertina_ •
+• i'm albertina •
